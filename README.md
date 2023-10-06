@@ -1,9 +1,9 @@
 ## Alumnos Participantes:
+- Axel Cannavina - 1D
 - Chiodin Lucas - 1B
 - Chanampa Macarena - 1B
 - Nahuel Ciolfi - 1B
 - Juan Arrúa - 1B
-
 
 
 ## Dojo - Descubre la Palabra: 
